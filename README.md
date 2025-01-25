@@ -4,7 +4,7 @@ I'm a Second year student pursuing a BCA  degree in NIMS University Jaipur, acti
 About Me
 
 
-How to reach me:suthar.sutharkailash1315@gmail.com
+How to reach me:sutharkailash1315@gmail.com
 
 Ask me about Computer Networking , Cyber security Fundamentals
 
